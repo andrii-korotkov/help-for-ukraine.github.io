@@ -1,1 +1,1 @@
-Information about the situation in Ukraine and how to help.
+Information about the situation in Ukraine and ways to help
