@@ -4,7 +4,7 @@ On February 24 2022 Russia has launched a large invasion to Ukraine with a goals
 
 ## Personal participation
 
-Contact your govenment representatives and participate in local demonstrations for Ukraine support. Many countries' leaders are already helping Ukraine, but Putin haven't been stopped yet. Every bit counts and your participation increases the chances of government taking more action.
+Contact your government representatives and participate in local demonstrations for Ukraine support. Many countries' leaders are already helping Ukraine, but Putin haven't been stopped yet. Every bit counts and your participation increases the chances of government taking more action.
 
 Share the information with your relatives and friends, get them involved into helping.
 
@@ -12,7 +12,7 @@ Share the information with your relatives and friends, get them involved into he
 
 This topic has an international attention and many news outlets are covering it. Just avoid pro-russian and/or propaganda channels, as they often tell a complete opposite of truth. I personally follow US's CNN and New York Times, and Ukraine's Censor Net for a pretty good coverage with regular updates.
 
-There's also a new project Ukrainian Witness by Vitaliy Deynega, the founder of one of the largest Ukrainian charity fund Come Back Alive. It's a chronicle of Ukrainian resistance to Russian aggression. You can find it on Facebook and Intagram.
+There's also a new project Ukrainian Witness by Vitaliy Deynega, the founder of one of the largest Ukrainian charity fund Come Back Alive. It's a chronicle of Ukrainian resistance to Russian aggression. You can find it on Facebook and Instagram.
 
 ## Donating
 
