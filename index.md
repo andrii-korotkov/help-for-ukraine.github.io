@@ -6,6 +6,8 @@ On February 24 2022 Russia has launched a large invasion to Ukraine with a goals
 
 Contact your govenment representatives and participate in local demonstrations for Ukraine support. Many countries' leaders are already helping Ukraine, but Putin haven't been stopped yet. Every bit counts and your participation increases the chances of government taking more action.
 
+Share the information with your relatives and friends, get them involved into helping.
+
 ## Getting information
 
 This topic has an international attention and many news outlets are covering it. Just avoid pro-russian and/or propaganda channels, as they often tell a complete opposite of truth. I personally follow US's CNN and New York Times, and Ukraine's Censor Net for a pretty good coverage with regular updates.
