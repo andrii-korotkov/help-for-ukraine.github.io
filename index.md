@@ -14,7 +14,7 @@ There's also a new project Ukrainian Witness by Vitaliy Deynega, the founder of 
 
 ## Donating
 
-There are multiple ways to donate via non-profit organizations or even the National Bank of Ukraine. I'm not affiliated to any of them, but had enough personal trust to donate.
+There are multiple ways to donate via non-profit organizations or even the National Bank of Ukraine. Here are the ones I knew and trusted to donate.
 * National Bank of Ukraine, which is Ukraine's central bank. It has opened a special account to raise funds for the army.
 * Come Back Alive. Look for its Ukrainian name "Повернись живим" or Savelife. It's one of the largest Ukrainian charities, focused on helping with equipment, training, rehabilitation of soliders.
 * Nova Ukraine. It's a 501(c)3 non-profit, dedicated to strengthening a civil society in Ukraine focused and providing a humanitarian aid.
