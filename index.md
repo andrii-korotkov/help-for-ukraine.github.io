@@ -8,4 +8,6 @@ Contact your govenment representatives and participate in local demonstrations f
 
 ## Getting information
 
-Work in progress
+This topic has an international attention and many news outlets are covering it. Just avoid pro-russian and/or propaganda channels, as they often tell a complete opposite of truth. I personally follow US's CNN and New York Times, and Ukraine's Censor Net for a pretty good coverage with regular updates.
+
+There's also a new project Ukrainian Witness by Vitaliy Deynega, the founder of one of the largest Ukrainian charity fund Come Back Alive. It's a chronicle of Ukrainian resistance to Russian aggression. You can find it on Facebook and Intagram.
