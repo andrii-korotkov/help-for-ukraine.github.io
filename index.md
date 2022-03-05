@@ -10,17 +10,17 @@ Share the information with your relatives and friends, get them involved into he
 
 ## Getting information
 
-This topic has an international attention and many news outlets are covering it. Just avoid pro-russian and/or propaganda channels, as they often tell a complete opposite of truth. I personally follow US's CNN and New York Times, and Ukraine's Censor Net for a pretty good coverage with regular updates.
+This topic has an international attention and many news outlets are covering it. Just avoid pro-russian and/or propaganda channels, as they often tell a complete opposite of truth. I personally follow US's [CNN](https://www.cnn.com) and [New York Times](https://www.nytimes.com), and Ukraine's [Censor Net](https://censor.net) for a pretty good coverage with regular updates.
 
-There's also a new project Ukrainian Witness by Vitaliy Deynega, the founder of one of the largest Ukrainian charity fund Come Back Alive. It's a chronicle of Ukrainian resistance to Russian aggression. You can find it on Facebook and Instagram.
+There's also a new project Ukrainian Witness by Vitaliy Deynega, the founder of one of the largest Ukrainian charity fund Come Back Alive. It's a chronicle of Ukrainian resistance to Russian aggression. You can find it on [Facebook](https://www.facebook.com/ukrainianwitness) and [Instagram](https://www.instagram.com/ukrainianwitness).
 
 ## Donating
 
 There are multiple ways to donate via non-profit organizations or even the National Bank of Ukraine. Here are the ones I knew and trusted to donate.
-* National Bank of Ukraine, which is Ukraine's central bank. It has opened a special account to raise funds for the army.
-* Come Back Alive. Look for its Ukrainian name "Повернись живим" or Savelife. It's one of the largest Ukrainian charities, focused on helping with equipment, training, rehabilitation of soldiers.
-* Nova Ukraine. It's a 501(c)3 non-profit, dedicated to strengthening a civil society in Ukraine focused and providing a humanitarian aid.
-* Razom for Ukraine. It's a 501(c)3 non-profit, focused on supporting building a prosperous democratic society in Ukraine, providing critical medical supplies and amplifying voices of Ukrainians.
-* Revived Soldiers Ukraine. It's a non-profit, focused on providing aid to Ukrainian people, including medical rehabilitation of soldiers.
-* Ukrainian American Coordinating Council. It's a non-profit, representative body for Ukrainian Americans and people of Ukrainian descent. They are raising funds for helmets and armory vests.
+* [National Bank of Ukraine](https://bank.gov.ua/en/news/all/natsionalniy-bank-vidkriv-spetsrahunok-dlya-zboru-koshtiv-na-potrebi-armiyi), which is Ukraine's central bank. It has opened a special account to raise funds for the army.
+* [Come Back Alive](https://savelife.in.ua) (ukr. "Повернись живим"). It's one of the largest Ukrainian charities, focused on helping with equipment, training, rehabilitation of soldiers.
+* [Nova Ukraine](https://novaukraine.org). It's a 501(c)3 non-profit, dedicated to strengthening a civil society in Ukraine focused and providing a humanitarian aid.
+* [Razom for Ukraine](https://razomforukraine.org). It's a 501(c)3 non-profit, focused on supporting building a prosperous democratic society in Ukraine, providing critical medical supplies and amplifying voices of Ukrainians.
+* [Revived Soldiers Ukraine](https://www.rsukraine.org). It's a 501(c)3 non-profit, focused on providing aid to Ukrainian people, including medical rehabilitation of soldiers.
+* [Ukrainian American Coordinating Council](https://uaccusa.org/). It's a 501(c)3 non-profit, representative body for Ukrainian Americans and people of Ukrainian descent. They are raising funds for helmets and armory vests.
 
