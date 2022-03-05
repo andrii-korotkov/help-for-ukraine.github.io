@@ -22,3 +22,5 @@ There are multiple ways to donate via non-profit organizations or even the Natio
 * Nova Ukraine. It's a 501(c)3 non-profit, dedicated to strengthening a civil society in Ukraine focused and providing a humanitarian aid.
 * Razom for Ukraine. It's a 501(c)3 non-profit, focused on supporting building a prosperous democratic society in Ukraine, providing critical medical supplies and amplifying voices of Ukrainians.
 * Revived Soldiers Ukraine. It's a non-profit, focused on providing aid to Ukrainian people, including medical rehabilitation of soldiers.
+* Ukrainian American Coordinating Council. It's a non-profit, representative body for Ukrainian Americans and people of Ukrainian descent. They are raising funds for helmets and armory vests.
+
