@@ -23,4 +23,6 @@ There are multiple ways to donate via non-profit organizations or even the Natio
 * [Razom for Ukraine](https://razomforukraine.org). It's a 501(c)3 non-profit, focused on supporting building a prosperous democratic society in Ukraine, providing critical medical supplies and amplifying voices of Ukrainians.
 * [Revived Soldiers Ukraine](https://www.rsukraine.org). It's a 501(c)3 non-profit, focused on providing aid to Ukrainian people, including medical rehabilitation of soldiers.
 * [Ukrainian American Coordinating Council](https://uaccusa.org/). It's a 501(c)3 non-profit, representative body for Ukrainian Americans and people of Ukrainian descent. They are raising funds for helmets and armory vests.
+* [United Help Ukraine](https://unitedhelpukraine.org). It's a 501(c)3 non-profit, focused on providing medical supplies, protective equipment, humanitarian help, wounded warrior help, raising awareness.
+
 
